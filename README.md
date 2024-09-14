@@ -1,1 +1,0 @@
-# Faizyab-Quran-Academy.com
